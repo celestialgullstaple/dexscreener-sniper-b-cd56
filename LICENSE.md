@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top dexscreener sniper bot | front-running + honeypot-detection, the #1 dexscreener sniper bot. Includes front-running and honeypot-detection for a
 
 
 
